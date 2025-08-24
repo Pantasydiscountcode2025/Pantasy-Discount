@@ -1,4 +1,4 @@
-<h1>🎉 <strong>Pantasy Discount Code: 10SAVE – Save up to 30% Off on Exclusive Building Sets at <a href="https://pantasy.com/?ref=dnosvaxr" target="_blank">Pantasy.com</a>!</strong> 🎉</h1>
+<h1> <strong>Pantasy Discount Code: 10SAVE – Save up to 30% Off on Exclusive Building Sets at <a href="https://pantasy.com/?ref=dnosvaxr" target="_blank">Pantasy.com</a>!</strong> 🎉</h1>
 <p>Looking for the perfect blend of creativity, fun, and challenge? <strong>Now is the best time to dive into the world of high-quality building sets with Pantasy!</strong> Whether you're a seasoned builder or a beginner, <strong>Pantasy's 2025 collection</strong> has something for everyone — <strong>now with discounts up to 30%</strong> when you shop at <a href="https://pantasy.com/?ref=dnosvaxr" target="_blank">Pantasy.com</a> using the <strong>Pantasy Discount Code: 10SAVE</strong>!</p>
 <ul>
 <li>✅ Unique & original designs</li>
